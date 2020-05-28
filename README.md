@@ -7,3 +7,4 @@ Alex Rocks )
 
 no nic!
 no Co tam?
+dobrze dobrze !!
